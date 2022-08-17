@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Arif02583
+- 👋 Hi, I’m Arif hussain
 - 👀 I’m interested in ...coding
 - 🌱 I’m currently learning ...developing 
 - 💞️ I’m looking to collaborate on ...
